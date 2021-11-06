@@ -1,0 +1,1 @@
+# gaming-gear-store-theme
